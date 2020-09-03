@@ -1,6 +1,7 @@
 `<fionadesignsREADME.md>`
 
-![Fiona as a gif](https://i.pinimg.com/originals/75/85/41/7585415efe7f6734445a63e377592375.gif)
+![Fiona as a gif](https://i.pinimg.com/originals/75/85/41/7585415efe7f6734445a63e377592375.gif)<br>
+_gif credit: google search images Pikachu_
 
 # Hi I'm Fiona
 I am: a ~~plastic surgeon~~ / designer who concentrates on product designing; sometimes I'm a visual design; or UX/UI design and even project manager. Technically titles doesn't prove enough what I do. But what I  { ♥ }  doing is collaborating on ideas* and building on innovations that connect with people because of experiences.
