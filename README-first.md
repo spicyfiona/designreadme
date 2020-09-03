@@ -15,7 +15,7 @@ I am: a ~~plastic surgeon~~ / designer who concentrates on product designing; so
 :sparkles:  Share & credit people (the world needs more kind people)<br>
 
 ### My creative process is "always improvising"...:stuck_out_tongue_winking_eye:
-Seen in my cooking, and the way I handle if nothing goes right, there will be plan B (at least). I've learnt to become cross-functional, open minded and adaptable. A lot of my creative works is because of interests and experiences with interactive digital-art:movie_camera:, immersive entertainment:video_game:, tactile workshops:scissors:, digital/mobile photography:camera: and especially hackathons:computer:
+Seen in my cooking, and the way I handle if nothing goes right, there will be plan B (at least). I've learnt to become cross-functional, open minded and adaptable. A lot of my creative works is because of interests and personal experiences with interactive digital-art:movie_camera:, immersive entertainment:video_game:, tactile workshops:scissors:, digital/mobile photography:camera: and especially hackathons:computer:
 
 ## I am ubitiqously everywhere (let's chat):
 Twitter: [@fiona_yl_lai](https://twitter.com/fiona_yl_lai)<br>
