@@ -4,7 +4,7 @@
 _gif credit: google search images Pikachu_
 
 # Hi I'm Fiona
-I am: a ~~plastic surgeon~~ / designer who concentrates on product designing; sometimes I'm a visual design; or UX/UI design and even project manager. Technically titles doesn't prove enough what I do. But what I  { ♥ }  doing is collaborating on ideas* and building on innovations that connect with people because of experiences.
+I am: a ~~plastic surgeon~~ / designer who concentrates on product designing; sometimes I'm a visual design; or UX/UI design and even a project manager. Technically titles doesn't prove enough what I do. But what I  { ♥ }  doing is collaborating on ideas* and building on innovations that connect with people because of experiences.
 
 *_it becomes a hyped-up moment thing then suddenly dies down of constant life changes and evolvement_:sob::neutral_face::sob::neutral_face:
 
