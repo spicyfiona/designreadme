@@ -11,10 +11,10 @@ I am: a ~~plastic/visual surgeon~~ / designer who concentrates on designing expe
 ## Fiona's design traits:
 :open_hands:  Be Empathetic (patience goes a long way)<br>
 :smiley:  Ask Questions (seriously, ~~assumptions~~ i, you, them, everyone can't read minds)<br>
-:lightning:  Try first & test quick (just do it)<br>
+:zap:  Try first & test quick (just do it)<br>
 :sparkles:  Share openly & credit everyone<br>
 
-### Fiona's creative process is "always improvising"...:stuck_out_tongue_winking_eye:
+### Fiona's creative process is "always improvising"...:zany_face:
 Seen in my cooking, and the way I handle if nothing goes right, there will be plan B (at least). I've learnt to become cross-functional, open minded and adaptable. A lot of my creative works is because of interests and personal experiences with interactive digital-art:movie_camera:, immersive entertainment:video_game:, tactile workshops:scissors:, digital/mobile photography:camera: and especially hackathons:computer:
 
 ## Fiona is ubitiqously everywhere (let's chat):
