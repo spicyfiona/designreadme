@@ -4,20 +4,20 @@
 _gif credit: google search images Pikachu_
 
 # Hi I'm Fiona
-I am: a ~~plastic/visual surgeon~~ / designer who concentrates on designing experiences of products and services. Sometimes I'm a visual designer; or UX/UI designer and/or a project manager. Technically titles don't prove enough of what I do. But what I { ♥ } doing is collaborating on ideas* and building on innovations that could be of some helpful use for people.
+
+I'm a design technologist who concentrates on pragmatic -- {universal} design experiences in products and services. Sometimes I'm a visual designer; or a User Experience (UX) / User Interaction (UI) designer and project manager. Technically titles doesn't prove enough of what I do... But what I { ♥ } is collaborating on ideas* and expanding experimentation that could be helpful or intrigue likeminded-people.
 
 *_till it becomes a hyped-up-moment thing then suddenly dies down from constant life changes and over-evolvement_:sob::neutral_face::sob::neutral_face:
 
-## Fiona's design traits:
-:open_hands:  Be Empathetic (patience goes a long way)<br>
-:smiley:  Ask Questions (seriously, ~~assumptions~~ i, you, them, everyone can't read minds)<br>
-:zap:  Try first & test quick (just do it)<br>
-:sparkles:  Share openly & credit everyone<br>
+## Fiona's traits:
+:open_hands:  Being empathetic (seeing the other side's perspective, goes a long way)<br>
+:raised_hands:  Ask Questions (~~assumptions~~ i, you, them, everyone can't read minds)<br>
+:zap:  Tinker testing (these Ah-HA! moments spark inspiration, just test it)<br>
+:sparkles:  Share appreciations, retrospectively, looking to where we got to, it wouldn't have been possible from the above<br>
 
-### Fiona's creative process is "always improvising"...:zany_face:
-Seen in my cooking, and the way I handle if nothing goes right, there will be plan B (at least). I've learnt to become cross-functional, open minded and adaptable. A lot of my creative works is because of interests and personal experiences with interactive digital-art:movie_camera:, immersive entertainment:video_game:, tactile workshops:scissors:, digital/mobile photography:camera: and especially hackathons:computer:
+My `(un)secret` recipe: <br>
+>Creative process involves questioning, snacking and improvising 🤪 <br>
+With every delicious challenge, there will always be a **sweet**, **salty**, **sour**, **bitter** and **spicy** moment.<br>
+I live for the spicy chaos, recover through the sour / bitterness with open retrospects and always sprinkle lots of sweetness with alternative plans to uplift moods. This is how I've become who I am today :smile:
 
-## Fiona is ubitiqously everywhere (let's chat):
-Twitter: [@fiona_yl_lai](https://twitter.com/fiona_yl_lai)<br>
-LinkedIn: [fionayllai](https://www.linkedin.com/in/fionayllai)<br>
-Personal site: [fionadesigns.online](fionadesigns.online)<br>
+[Ubitiqously, here, there, everywhere - hello universe](https://omg.lol/fiona) 👋
